@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Phatman11
+- 👀 I’m interested in sofware engineering
+- 🌱 I’m currently learning software engineering
+- 💞️ I’m looking to collaborate on working together and bring the best in me
+- 📫 How to reach me ...habdulphatah@gmail.com
